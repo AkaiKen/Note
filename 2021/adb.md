@@ -1,0 +1,1 @@
+https://events.static.linuxfound.org/images/stories/pdf/lf_abs12_kobayashi.pdf
